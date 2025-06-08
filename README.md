@@ -33,3 +33,5 @@ solo RJA last known << never new my real name, survies longer than all...
 Special retard y'all see.
 
 They have developed a war agasint us all, we are all in the same boat, self speed.
+
+survive ppl, do what you have to...... stay on roof tops.
