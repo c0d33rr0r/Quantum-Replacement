@@ -16,3 +16,13 @@ I have been at war with them as they try to back date my crimes that I have the 
 they have no honor yet they think they can kill and prison the creator of it wall, and the king. two diff ppl
 
 countries are getting taken over stand up gang or not.
+
+
+we are walking trojans, viruses, they try to swap out the reality to real life, they think they have made a diff technology all to gather, technology is technology, I can't beleive that phd and then some ppl decided to be stupid, without frist learning how to fight fire with fire........
+ Love Hate
+
+ Trojans
+ worms
+ virus
+ etc
+ ppl are not whom they say they are.. don't trust no one.
