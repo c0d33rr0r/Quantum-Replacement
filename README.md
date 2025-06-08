@@ -28,4 +28,6 @@ we are walking trojans, viruses, they try to swap out the reality to real life, 
  ppl are not whom they say they are.. don't trust no one.
 
 
-solo 1 survies longer than all...
+solo RJA last known << never new my real name, survies longer than all...
+
+Special retard y'all see.
