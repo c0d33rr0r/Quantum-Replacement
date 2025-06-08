@@ -7,3 +7,5 @@ It is a spy based way to excape their crimes, please become a type of way to ser
 You know who decided to artificailise Exsistance it self.
 
 They think they can excapse justice........ 
+
+They are trying to say that I should go to jail for saving their dumbasses I should just let them linger like prison and let them think of their actions.
