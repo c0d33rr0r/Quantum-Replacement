@@ -3,3 +3,7 @@ The replacement of Human. needed &lt;&lt;&lt; Why it is danger to stupid. Mankin
 
 
 It is a spy based way to excape their crimes, please become a type of way to serve them justice.
+
+You know who decided to artificailise Exsistance it self.
+
+They think they can excapse justice........ 
