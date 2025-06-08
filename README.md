@@ -26,3 +26,6 @@ we are walking trojans, viruses, they try to swap out the reality to real life, 
  virus
  etc
  ppl are not whom they say they are.. don't trust no one.
+
+
+solo 1 survies longer than all...
