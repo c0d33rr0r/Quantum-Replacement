@@ -35,3 +35,10 @@ Special retard y'all see.
 They have developed a war agasint us all, we are all in the same boat, self speed.
 
 survive ppl, do what you have to...... stay on roof tops.
+
+
+Please donate for the time and effort.
+
+![CashAppDonations](https://github.com/user-attachments/assets/0bb01928-4c7e-46cf-8bce-04fc4ea0676e)
+
+C0d33rr0r@outlook.com
